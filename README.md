@@ -6,6 +6,6 @@
 
 ---
 
-![Happy New Year E-Card](ecard2025.png)
+![Happy New Year E-Card](image/ecard2025.png)
 
 
