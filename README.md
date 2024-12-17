@@ -6,9 +6,6 @@
 
 ---
 
-![Holiday e-Card](ecard2025.png)
+![Happy New Year E-Card](ecard2025.png)
 
-### Sending my warmest wishes to you and your loved ones! 🌟
----
 
-**Thank you for being part of an amazing year! Let's make 2025 even better.** ✨
